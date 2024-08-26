@@ -1,1 +1,2 @@
-# krotom.github.io
+# You, yes. YOU!
+# Mustafa Çok Noob
